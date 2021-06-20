@@ -1,5 +1,5 @@
 ## Muellners Foundation
-Muellners® Foundation is a social voluntary association, a socio-economic enterprise at Danish Business Authority, Denmark, Europe.
+Muellners® Foundation is a social voluntary association, a socio-economic enterprise, registered with Danish Business Authority, Denmark, Europe.
 CVR no. 41008407 . Please look for more information on Foundation's compliance at https://virk.dk 
 
 ### CASE STUDIES
